@@ -1,7 +1,6 @@
 # Sistemas_espertyo
 # Link: 
 # Tarea 2 
-agdgfohf[afas clave
 integrantes
 1- ivan saavedra
 2- deyka jordan
